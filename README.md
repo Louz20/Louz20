@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Louz.
+-  
+- 👀 I’m interested in meet new people and elaborate some jobs togheter!
+- 
+- 🌱 I’m currently learning QA, i'm newbie in I.T.
+- 
+- 📫 You can talk to me at the E-mail - Luizgrosa15@hotmail.com   :)
